@@ -1,1 +1,1 @@
-# release-vodoobuyer
+GUIDA ALL'USO: https://telegra.ph/VOODOOBUYER---GUIDA-RAPIDA-ALLUSO-09-26
